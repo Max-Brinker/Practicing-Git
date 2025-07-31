@@ -6,4 +6,5 @@ I am interested in learning more technical skills, including SQL, git, and githu
 I have a BS in Mathematics and Religious Studies from UNC Chapel Hill.
 I graduated in 2024.
 
-I enjoy hiking, running, watercolor painting, reading philosophy, and travelling.
+I enjoy hiking, running, watercolor painting, reading philosophy, and travelling. 
+My goals include hiking mount Shasta, contributing to the local community, supporting natural ecosystems, and writing a book.
