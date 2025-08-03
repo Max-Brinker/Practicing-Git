@@ -7,5 +7,4 @@ I have a BS in Mathematics and Religious Studies from UNC Chapel Hill.
 I graduated in 2024.
 
 I enjoy hiking, running, watercolor painting, reading philosophy, and travelling. 
-My goals include hiking mount Shasta, contributing to the local community, supporting natural ecosystems, and writing a book.
 My family has a cabin in the rural mountains of North Carolina near a river called Wilson Creek. 
